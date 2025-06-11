@@ -1,1 +1,0 @@
-# nagish-li-script
